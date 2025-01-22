@@ -2,7 +2,7 @@
 
 <br />
 
-I'm a self-taught passionate developer from [Your Country] 🇺🇸
+I'm a self-taught passionate developer from [England] 🇺🇸
 
 **About me**
 
